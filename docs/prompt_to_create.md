@@ -13,3 +13,11 @@ great job! please use the same rigorous and meticulous approach to research on w
 
 ---
 explore nutrition products like "NutriClean HepatoCleanse (Liver Support Formula)" from Market America to help in this area
+
+---
+Understanding Liver Health:  
+You will start a deep dive into liver health, focusing on natural approaches like food, supplements, and herbs. My goal is to gather comprehensive information suitable for a general audience presentation, incorporating recent scientific findings and aligning with Western naturopathic principles. I'll also be analyzing a specific product, NutriClean HepatoCleanse.
+Research Approach:  
+Your research will proceed in phases. Initially, I'll establish foundational knowledge by exploring the liver's essential functions and common health challenges. Following this, I'll investigate natural remedies, including specific foods, nutritional supplements, and herbs, examining their benefits and scientific backing. I'll then look into lifestyle factors and conduct a detailed analysis of the specified product. Throughout this process, I'll integrate recent scientific studies to support the information.
+Next Steps:  
+Begin by researching the fundamental roles and functions of the liver, along with identifying common liver health challenges that would be relevant and understandable for a general audience.
