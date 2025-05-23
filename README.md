@@ -3,5 +3,6 @@ https://aistudio.google.com/app/prompts?state=%7B%22ids%22:%5B%221E8OhKNL4EkE90K
 https://www.perplexity.ai/search/you-are-a-deep-thinking-ai-age-jPz0YUgPTI2X_N5e7yNmBQ
 
 https://chatgpt.com/share/682fc1f7-c0a4-800c-814b-1d1f932f2e1a
+https://chatgpt.com/s/dr_682fc313463081918a8c39b99e5d5de5
 
 https://g.co/gemini/share/0ad208af0650
