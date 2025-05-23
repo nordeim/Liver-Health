@@ -101,3 +101,7 @@ Let's consider product categories and typical ingredients often found in their l
 The most "liver-specific" ingredients to look for would be **Milk Thistle (Silymarin), Artichoke, Dandelion, Curcumin, NAC (though I'm not sure if MA has a standalone NAC), Choline, and potent antioxidants.** Many of these may be found within their broader product formulations.
 
 Again, this analysis is based on ingredient profiles and general nutritional principles. It's crucial to cross-reference with actual Market America product labels and consult with a healthcare professional for personalized advice.
+
+---
+https://aistudio.google.com/app/prompts?state=%7B%22ids%22:%5B%221E8OhKNL4EkE90KR-ZVzHMf9fi93tUwoY%22%5D,%22action%22:%22open%22,%22userId%22:%22103961307342447084491%22,%22resourceKeys%22:%7B%7D%7D&usp=sharing
+
