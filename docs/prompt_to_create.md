@@ -36,4 +36,9 @@ Now help me to do a deep research on the topic of "Liver Health" using natural m
 2) good enough depth without being too technical, because the audience is not professional.  
 3) more towards Western accepted norms.  
 4) Include recent scientific studies to supplement traditional knowledge/wisdom.
-5) 
+
+---
+do a deep dive search to look for products available from https://www.isotonix.com/ that can help me to improve my liver health and can also help to detoxify my liver.
+
+---
+you have done an excellent research! you produced exactly what I was hoping for. now please widen your research to include more products from https://www.shop.com/ so that I can have more choices at various price point. But the products must be able to help to maintain and improve on my liver health and / or products that help with liver detoxification. Liver is human's major detoxification organ, but it also need periodic detoxification itself. Please try your very best to search and produce an awesome report. Good luck and give me a pleasant surprise with your research output.
